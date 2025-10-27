@@ -1,2 +1,3 @@
 # baarasamsung24
-tasya imut kaya kamari
+
+Mancing aja mancing
